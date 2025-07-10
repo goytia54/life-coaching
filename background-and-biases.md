@@ -7,8 +7,11 @@
 * Grew up in a lower middle class family
 * Division I athlete
 * First-generation college graduate, master's and bachelor's in chemistry (emphasis in theoretical/computational methodologies)
+* I did receive finanancial help while 
 * Life coach/mentor
 * Career coach/mentor
 * Senior software engineer (current: TWDC, past: 3M, Motorola, Myriad Genetics, Galileo Financial Technologies (SoFi), OptConnect)
 * Consider myself a moderate in thinking but they might blend over to more progressive thinking
+* Annuled marriage
 * Finally felt like I could start living life at 34 years old
+* Budget using the Dave Ramsey approach
