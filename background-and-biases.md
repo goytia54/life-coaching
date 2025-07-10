@@ -12,7 +12,7 @@
 * Life coach/mentor
 * Career coach/mentor
 * Senior software engineer (current: TWDC, past: 3M, Motorola, Myriad Genetics, Galileo Financial Technologies (SoFi), OptConnect)
-* Consider myself a moderate in thinking but they might blend over to more progressive thinking
+* Consider myself a moderate but my thoughts might be perceived as being more progressive
 * Annuled marriage
 * Finally felt like I could start living life at 34 years old
 * Budget using the Dave Ramsey approach
