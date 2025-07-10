@@ -7,7 +7,7 @@
 * Grew up in a lower middle class family
 * Division I athlete
 * First-generation college graduate, master's and bachelor's in chemistry (emphasis in theoretical/computational methodologies)
-* I did receive finanancial help while 
+  * I did receive finanancial help from my family while attending undergraduate a long with scholarships, graduate school was full scholarship and assistantship
 * Life coach/mentor
 * Career coach/mentor
 * Senior software engineer (current: TWDC, past: 3M, Motorola, Myriad Genetics, Galileo Financial Technologies (SoFi), OptConnect)
