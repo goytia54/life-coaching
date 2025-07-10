@@ -1,6 +1,7 @@
 # Background And Biases
-* Father was born in Mexico but raised in the United States of America, mechanic
-* Mother was born in the United States of America, bookkeeper
+* Very loving and supporting parents and family
+  * Father was born in Mexico but raised in the United States of America, mechanic
+  * Mother was born in the United States of America, bookkeeper
 * Child sexual abuse victim/survivor
 * Anxiety (take medication daily)
 * Raised following the practices of The Church of Jesus Christ of Latter-day Saints
